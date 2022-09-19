@@ -1,1 +1,1 @@
-# ISMAıL
+# PARDİK
